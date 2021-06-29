@@ -1,4 +1,4 @@
-### ▀▄▀▄▀▄I Enjoy The Following Activities▀▄▀▄▀▄
+### ▀▄▀▄▀ I Enjoy The Following Activities ▄▀▄▀▄
 
 ⓵ ➗ Working with numbers (Math)<br />
 
