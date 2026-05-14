@@ -1,2 +1,1 @@
 USA Computing Olympiad 🏅 Platinum 🏅
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
